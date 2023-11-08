@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 -->
 - 🌱 I’m currently learning an Android
 - 💬 Ask me about something
-- 📫 How to reach me: follow my twitter @Chairullatiff
+- 📫 How to reach me: follow my instagram @Chairullatiff
